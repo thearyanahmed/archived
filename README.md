@@ -1,1 +1,21 @@
 # archived
+
+
+1. [Bangladesh student protests over jobs escalate, telecoms disrupted - Al Jazeera](https://archive.is/eW4uL)
+2. [Bangladesh issues high security alert as deadly protests escalate](https://archive.ph/xqfCT)
+3. [Bangladesh - Al Jazeera](https://archive.ph/wEyds)
+4. [Who are the protesters demanding an end to job quotas in Bangladesh?](https://archive.ph/Jtdp8#selection-631.0-634.0)
+5. [Bangladesh shuts schools and universities after six killed in protests](https://archive.ph/DC1eS#selection-617.0-620.0)
+6. [Bangladesh job quota protesters call for nationwide shutdown](https://archive.ph/ts2fb#selection-617.0-620.0)
+7. [Police fire tear gas as Bangladesh protests against job quotas rage](https://archive.ph/kO05h#selection-641.0-644.0)
+8. [Bangladesh students defy orders, occupy universities as tensions spiral](https://archive.ph/lRF5Y#selection-623.0-626.0)
+9. [At least six killed in Bangladesh student anti-quota protests](https://archive.ph/7NfHy#selection-645.0-648.0)
+10. [What’s behind Bangladesh’s violent quota protests?](https://archive.ph/NL2Ot)
+11. [‘We sought rights’: Bangladesh on edge after quota protest turns violent](https://archive.ph/GmEji)
+12. [Dozens wounded as Bangladesh students protest government job quotas](https://archive.ph/IrYkG#selection-623.0-626.0)
+13. [Bangladesh has erupted over jobs reserved for the children of ‘freedom fighters.’ Here’s what you need to know](https://archive.ph/L1UN6#selection-2281.7-2298.0)
+14. [Bangladesh bans rallies as violent protests spiral out of control](https://archive.ph/w596W#selection-617.0-620.0)
+15. [Bangladesh issues high security alert as deadly protests escalate](https://archive.ph/xqfCT#selection-589.0-600.0)
+16. [Bangladesh Internet Shutdown google search](https://archive.ph/bdYRP)
+17. [Bangladesh imposes communications blackout as protest violence continues](https://archive.ph/FCqiK#selection-1335.0-1342.0)
+18. [Bangladesh is experiencing a ‘near-total’ internet shutdown amid student protests](https://archive.ph/q5LsC#selection-953.0-958.0)
